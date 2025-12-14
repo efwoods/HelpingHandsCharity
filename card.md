@@ -32,3 +32,6 @@ AVAILABLE SERVICES
 
 Need help now?
 Call or text 211 (United Way)
+
+
+[instructions for printing, etc.](https://chatgpt.com/gg/693f187454ec819f974455dd96fad56e)
